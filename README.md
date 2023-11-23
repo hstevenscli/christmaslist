@@ -25,9 +25,14 @@
 
 * [Magpul Vertical Grip](https://magpul.com/rvg-rail-vertical-grip.html?mp_global_color=118)
 * [Pocket Holster](https://www.amazon.com/ComfortTac-Comfortable-Concealed-Revolvers-Subcompact/dp/B071ZD4F71/ref=sr_1_5?keywords=pocket%2Bholster&sr=8-5&th=1)
+* [45 Degree Mount](https://www.amazon.com/Monstrum-Degree-Offset-Picatinny-Mount/dp/B09L57BCPS/ref=mp_s_a_1_3?crid=2LCDGVQGUR7T9&keywords=45+degree+offset+mount&qid=1700766826&sprefix=45+degree%2Caps%2C267&sr=8-3)
+* [Flashlight](https://www.amazon.com/Feyachi-Tactical-Flashlight-Picatinny-Batteries/dp/B07VGH8286/ref=mp_s_a_1_2_sspa?crid=FC2AP7XFAFYI&keywords=rifle+light&qid=1700766912&sprefix=rifle+light%2Caps%2C207&sr=8-2-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9waG9uZV9zZWFyY2hfYXRm&psc=1)
 
 ### Ammo
 * 9mm - 115 Grain
+    * Hollow Point and FMJ
 * 5.56/223 Remington
 * 12 Gauge
+    * Slug/buckshot/birdshot
 * 380
+    * Hollow Point and FMJ
