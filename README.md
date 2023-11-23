@@ -16,9 +16,9 @@
 
 ## Knives
 
-* [spyderco] (https://www.amazon.com/Spyderco-Tenacious-Lightweight-Folding-Stainless/dp/B083ZMLSWZ/ref=mp_s_a_1_3?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-3)
-* [spyderco] (https://www.amazon.com/Spyderco-Tenacious-Plain-Folding-Knife/dp/B007CK1MNU/ref=mp_s_a_1_4?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-4)
-* [spyderco] (https://www.amazon.com/Spyderco-Lightweight-Signature-Stainless-Durable/dp/B07XVR2K7P/ref=mp_s_a_1_19?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-19)
+* [spyderco](https://www.amazon.com/Spyderco-Tenacious-Lightweight-Folding-Stainless/dp/B083ZMLSWZ/ref=mp_s_a_1_3?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-3)
+* [spyderco](https://www.amazon.com/Spyderco-Tenacious-Plain-Folding-Knife/dp/B007CK1MNU/ref=mp_s_a_1_4?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-4)
+* [spyderco](https://www.amazon.com/Spyderco-Lightweight-Signature-Stainless-Durable/dp/B07XVR2K7P/ref=mp_s_a_1_19?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-19)
 
 
 ## Fun Stuff
