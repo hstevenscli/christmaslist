@@ -27,6 +27,11 @@
 * [Pocket Holster](https://www.amazon.com/ComfortTac-Comfortable-Concealed-Revolvers-Subcompact/dp/B071ZD4F71/ref=sr_1_5?keywords=pocket%2Bholster&sr=8-5&th=1)
 * [45 Degree Mount](https://www.amazon.com/Monstrum-Degree-Offset-Picatinny-Mount/dp/B09L57BCPS/ref=mp_s_a_1_3?crid=2LCDGVQGUR7T9&keywords=45+degree+offset+mount&qid=1700766826&sprefix=45+degree%2Caps%2C267&sr=8-3)
 * [Flashlight](https://www.amazon.com/Feyachi-Tactical-Flashlight-Picatinny-Batteries/dp/B07VGH8286/ref=mp_s_a_1_2_sspa?crid=FC2AP7XFAFYI&keywords=rifle+light&qid=1700766912&sprefix=rifle+light%2Caps%2C207&sr=8-2-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9waG9uZV9zZWFyY2hfYXRm&psc=1)
+* [PSA Dagger Bundle](https://palmettostatearmory.com/psa-dagger-compact-9mm-pistol-with-sw1-ecc-rmr-slide-threaded-barrel-w-10-15rd-mag-and-bag-sniper-green-rear-sight-rear.html)
+* [PSA Dagger](https://palmettostatearmory.com/psa-dagger-compact-9mm-pistol-with-extreme-carry-cuts-flat-dark-earth.html)
+* [CZ Compact](https://palmettostatearmory.com/cz-75-compact-9mm-pistol-black-91190.html)
+* [CZ PO7](https://palmettostatearmory.com/cz-p07-9mm-pistol-black-91086.html)
+* [Keltec KS7](https://palmettostatearmory.com/kel-tec-12-ga-ks7-pump-shotgun-ks7blk.html)
 
 ### Ammo
 * 9mm - 115 Grain
