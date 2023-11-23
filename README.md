@@ -1,4 +1,4 @@
-# Christmas List
+# Christmas List/Birthday
 
 
 ## Keyboards
@@ -12,11 +12,20 @@
 * [Dark Souls Sweater](https://darksouls.store/product/dark-souls-praise-the-sun-ugly-christmas-sweater/)
 
 ## Lighter
-* https://www.amazon.com/Laicengo-Vintage-Kerosene-Windproof-Included/dp/B091DN8VN7/ref=sr_1_28?keywords=old%2Blighter&sr=8-28&th=1
+* [Vintage Lighter](https://www.amazon.com/Laicengo-Vintage-Kerosene-Windproof-Included/dp/B091DN8VN7/ref=sr_1_28?keywords=old%2Blighter&sr=8-28&th=1) 
+
+## Knives
+
+* [spyderco] (https://www.amazon.com/Spyderco-Tenacious-Lightweight-Folding-Stainless/dp/B083ZMLSWZ/ref=mp_s_a_1_3?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-3)
+* [spyderco] (https://www.amazon.com/Spyderco-Tenacious-Plain-Folding-Knife/dp/B007CK1MNU/ref=mp_s_a_1_4?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-4)
+* [spyderco] (https://www.amazon.com/Spyderco-Lightweight-Signature-Stainless-Durable/dp/B07XVR2K7P/ref=mp_s_a_1_19?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-19)
+
 
 ## Fun Stuff
+
 * [Magpul Vertical Grip](https://magpul.com/rvg-rail-vertical-grip.html?mp_global_color=118)
 * [Pocket Holster](https://www.amazon.com/ComfortTac-Comfortable-Concealed-Revolvers-Subcompact/dp/B071ZD4F71/ref=sr_1_5?keywords=pocket%2Bholster&sr=8-5&th=1)
+
 ### Ammo
 * 9mm - 115 Grain
 * 5.56/223 Remington
