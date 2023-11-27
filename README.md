@@ -8,6 +8,13 @@
 * [ZSA Moonlander](https://www.zsa.io/moonlander/)
 * [Lily58 Pro](https://www.etsy.com/listing/1486927150/pre-soldered-lily58-pro-mx-choc-split?click_key=8a96b062ab9e8149ffe440d1487c23413f534b42%3A1486927150&click_sum=91021633&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=lily58&ref=sr_gallery-1-3&frs=1)
 
+## Keycap Sets - *!High Priority!*
+
+* [Transmutation](https://kono.store/collections/on-sale-collection/products/kds-transmutation?variant=41986273804487)
+    * Core kit
+* [Solarized Dark](https://kono.store/collections/on-sale-collection/products/kds-solarized-dark?variant=42197466939591)
+    * Base kit
+
 ## Sweaters
 * [Dark Souls Sweater](https://darksouls.store/product/dark-souls-praise-the-sun-ugly-christmas-sweater/)
 
@@ -19,6 +26,8 @@
 * [Spyderco lightweight](https://www.amazon.com/Spyderco-Tenacious-Lightweight-Folding-Stainless/dp/B083ZMLSWZ/ref=mp_s_a_1_3?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-3)
 * [Spyderco plain](https://www.amazon.com/Spyderco-Tenacious-Plain-Folding-Knife/dp/B007CK1MNU/ref=mp_s_a_1_4?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-4)
 * [Spyderco Para 3](https://www.amazon.com/Spyderco-Lightweight-Signature-Stainless-Durable/dp/B07XVR2K7P/ref=mp_s_a_1_19?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-19)
+
+Or any cool swiss tech knife
 
 
 ## Fun Stuff
