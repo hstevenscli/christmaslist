@@ -16,7 +16,7 @@
     * Base kit (No longer on sale, expensive)
 * [Tai-Hao Hawaii](https://kono.store/collections/keycap-sets/products/tai-hao-hawaii-pbt-keycap-set)
 * [ePBT Ping](https://kono.store/collections/keycap-sets/products/epbt-ping?variant=41359281782983)
-    * Hira kit
+    * Hira kit (As of now: $35 on sale)
 * [Tai-Hao Purple and Gray](https://kono.store/collections/keycap-sets/products/tai-hao-purple-gray-pbt-keycap-set)
 
 ## Sweaters
