@@ -10,10 +10,14 @@
 
 ## Keycap Sets - *!High Priority!*
 
-* [Transmutation](https://kono.store/collections/on-sale-collection/products/kds-transmutation?variant=41986273804487)
-    * Core kit
-* [Solarized Dark](https://kono.store/collections/on-sale-collection/products/kds-solarized-dark?variant=42197466939591)
-    * Base kit
+* ~~[Transmutation](https://kono.store/collections/on-sale-collection/products/kds-transmutation?variant=41986273804487)~~
+    * Core kit (No longer on sale, expensive)
+* ~~[Solarized Dark](https://kono.store/collections/on-sale-collection/products/kds-solarized-dark?variant=42197466939591)~~
+    * Base kit (No longer on sale, expensive)
+* [Tai-Hao Hawaii](https://kono.store/collections/keycap-sets/products/tai-hao-hawaii-pbt-keycap-set)
+* [ePBT Ping](https://kono.store/collections/keycap-sets/products/epbt-ping?variant=41359281782983)
+    * Hira kit
+* [Tai-Hao Purple and Gray](https://kono.store/collections/keycap-sets/products/tai-hao-purple-gray-pbt-keycap-set)
 
 ## Sweaters
 * [Dark Souls Sweater](https://darksouls.store/product/dark-souls-praise-the-sun-ugly-christmas-sweater/)
