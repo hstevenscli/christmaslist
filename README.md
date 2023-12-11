@@ -6,7 +6,7 @@
 * ~~[](https://www.etsy.com/listing/1571855869/choc-corne-40-24g-wireless-split?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=mechanical+keyboard&ref=sr_gallery-1-28&frs=1&organic_search_click=1)~~
 * [](https://www.etsy.com/listing/1260155362/keyclicks-w-ergo-24g-wireless-split?click_key=03cdf9af9e3c18bf9c28a43600d5c4e894272f4f%3A1260155362&click_sum=f373bd4d&ref=related-3&frs=1)
 * [](https://www.zsa.io/moonlander/)
-* [](https://www.etsy.com/listing/1486927150/pre-soldered-lily58-pro-mx-choc-split?click_key=8a96b062ab9e8149ffe440d1487c23413f534b42%3A1486927150&click_sum=91021633&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=lily58&ref=sr_gallery-1-3&frs=1)
+* [Lily 58](https://www.etsy.com/listing/1486927150/pre-soldered-lily58-pro-mx-choc-split?click_key=8a96b062ab9e8149ffe440d1487c23413f534b42%3A1486927150&click_sum=91021633&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=lily58&ref=sr_gallery-1-3&frs=1)
 
 ## Keycap Sets - *!High Priority!*
 
