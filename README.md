@@ -22,8 +22,11 @@
 
 ## Knives and Knife Things
 
+### Useful
 * [Whetstone knife sharpener](https://www.amazon.com/Sharp-Pebble-Sharpening-Flattening-NonSlip/dp/B08Q364Q2M)
 * [Whetstone 2 stone bundle](https://www.amazon.com/Sharp-Pebble-Sharpening-Stones-Flattening/dp/B08Q65M4M8)
+
+### Semi Useful/For Fun
 * [Spyderco lightweight](https://www.amazon.com/Spyderco-Tenacious-Lightweight-Folding-Stainless/dp/B083ZMLSWZ/ref=mp_s_a_1_3?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-3)
 * [Spyderco plain](https://www.amazon.com/Spyderco-Tenacious-Plain-Folding-Knife/dp/B007CK1MNU/ref=mp_s_a_1_4?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-4)
 * [Spyderco Para 3](https://www.amazon.com/Spyderco-Lightweight-Signature-Stainless-Durable/dp/B07XVR2K7P/ref=mp_s_a_1_19?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-19)
@@ -31,7 +34,7 @@
 Or any cool swiss tech knife
 
 ## Sweaters
-* [Dark Souls Sweater](https://darksouls.store/product/dark-souls-praise-the-sun-ugly-christmas-sweater/)
+* [Dark Souls Sweater](https://darksouls.store/product/dark-souls-praise-the-sun-ugly-christmas-sweater/) <- Very cool
 
 ## Tools
 
