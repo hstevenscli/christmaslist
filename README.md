@@ -40,7 +40,6 @@ Or any cool swiss tech knife
 
 * [Teapot and Cups](https://www.amazon.com/Juvale-Black-Cast-Iron-Kettle/dp/B01J7AWNDA/ref=sr_1_9?keywords=cast+iron+teapot&sr=8-9)
 * [Blue Teapot](https://www.amazon.com/Teapot-Sotya-Tetsubin-Japanese-Kettle/dp/B088M9R5VW/ref=sr_1_6?keywords=cast%2Biron%2Bteapot&sr=8-6&th=1)
-* [Black Teapot](https://www.amazon.com/Workshop-Japanese-Tetsubin-Stainless-Infuser/dp/B01N5JTAAD/ref=sr_1_7?keywords=cast%2Biron%2Bteapot&sr=8-7&th=1)
 * [Peppermint Tea](https://www.amazon.com/Anthonys-Organic-Peppermint-Leaves-Non-Irradiated/dp/B07JWBXNW3/ref=sr_1_6?keywords=loose+tea+peppermint&sr=8-6)
 
 ## Tools
