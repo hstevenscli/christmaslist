@@ -9,16 +9,16 @@
 <!-- * [](https://www.etsy.com/listing/1486927150/pre-soldered-lily58-pro-mx-choc-split?click_key=8a96b062ab9e8149ffe440d1487c23413f534b42%3A1486927150&click_sum=91021633&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=lily58&ref=sr_gallery-1-3&frs=1) -->
 
 
-## Keycap Sets - *!High Priority!*
+<!-- ## Keycap Sets - *!High Priority!* -->
 
-* ~~[Transmutation](https://kono.store/collections/on-sale-collection/products/kds-transmutation?variant=41986273804487)~~
-    * Core kit (No longer on sale, expensive)
-* ~~[Solarized Dark](https://kono.store/collections/on-sale-collection/products/kds-solarized-dark?variant=42197466939591)~~
-    * Base kit (No longer on sale, expensive)
-* [Tai-Hao Hawaii <- My favorite](https://kono.store/collections/keycap-sets/products/tai-hao-hawaii-pbt-keycap-set)
-* [ePBT Ping](https://kono.store/collections/keycap-sets/products/epbt-ping?variant=41359281782983)
-    * Hira kit (As of now: $35 on sale)
-* [Tai-Hao Purple and Gray](https://kono.store/collections/keycap-sets/products/tai-hao-purple-gray-pbt-keycap-set)
+<!-- * ~~[Transmutation](https://kono.store/collections/on-sale-collection/products/kds-transmutation?variant=41986273804487)~~ -->
+<!--     * Core kit (No longer on sale, expensive) -->
+<!-- * ~~[Solarized Dark](https://kono.store/collections/on-sale-collection/products/kds-solarized-dark?variant=42197466939591)~~ -->
+<!--     * Base kit (No longer on sale, expensive) -->
+<!-- * [Tai-Hao Hawaii <- My favorite](https://kono.store/collections/keycap-sets/products/tai-hao-hawaii-pbt-keycap-set) -->
+<!-- * [ePBT Ping](https://kono.store/collections/keycap-sets/products/epbt-ping?variant=41359281782983) -->
+<!--     * Hira kit (As of now: $35 on sale) -->
+<!-- * [Tai-Hao Purple and Gray](https://kono.store/collections/keycap-sets/products/tai-hao-purple-gray-pbt-keycap-set) -->
 
 ## Knives and Knife Things
 
