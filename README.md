@@ -10,18 +10,18 @@ The Dream, a lot more money
 ## Clothes
 * [Mana is stored in the balls](https://wizardofbarge.com/collections/frontpage/products/mana-drought-tee?variant=45400735351009)
 
+## Other Computer Things
+* [Phone Keyboard](https://www.amazon.com/Bluetooth-Keyboard-Geyes-Foldable-Smartphones/dp/B07BBLHJ2R/ref=sr_1_6?sr=8-6)
+* [Graphics Card](https://www.amazon.com/ASRock-XT-DisplayPort-Architecture-RX5700/dp/B0DC4JTVRB/ref=sr_1_2?sr=8-2)
+
 ## Hard Drives
 * [4tb hard drive](https://www.amazon.com/Seagate-BarraCuda-Internal-Drive-3-5-Inch/dp/B07D9C7SQH/ref=sr_1_3?sr=8-3)
 * [1tb hard drive (for kids future computer)](https://www.newegg.com/seagate-barracuda-st1000dm010-1tb/p/N82E16822179010)
-
-## Other Computer Things
-* [Graphics Card](https://www.amazon.com/ASRock-XT-DisplayPort-Architecture-RX5700/dp/B0DC4JTVRB/ref=sr_1_2?sr=8-2)
 
 ## Knives and Knife Things
 
 #### Useful
 * [Whetstone knife sharpener](https://www.amazon.com/Sharp-Pebble-Sharpening-Flattening-NonSlip/dp/B08Q364Q2M)
-* [Whetstone 2 stone bundle](https://www.amazon.com/Sharp-Pebble-Sharpening-Stones-Flattening/dp/B08Q65M4M8)
 
 #### Semi Useful/For Fun
 * [Spyderco lightweight](https://www.amazon.com/Spyderco-Tenacious-Lightweight-Folding-Stainless/dp/B083ZMLSWZ/ref=mp_s_a_1_3?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-3)
