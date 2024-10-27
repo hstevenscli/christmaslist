@@ -4,6 +4,8 @@
 Budget phone, but really nice. Top pick
 * [Poco X6](https://www.amazon.com/Xiaomi-Global-Unlocked-Tmobile-Charger/dp/B0CR514L7L/ref=sr_1_6?sr=8-6)
 
+* [OnePlus N30](https://www.amazon.com/OnePlus-Unlocked-Dual-SIM-Charging-Chromatic/dp/B0C22BRGLG/ref=mp_s_a_1_1_vs_ar?crid=8QJIQI8DRN57&dib=eyJ2IjoiMSJ9.CxXQewkAQmZBcpJfXf9N0DfFOu-d0QJJ7-i3w9d3z3_cM_58TtnWUQJRgyz1M0dP4xE6R7S2uS-xBKU7QfoowRa16bopyTaX68naxJrqJcWcQ3q-uC-g3-sesfaj9qpLmINbg_GFxOzrK1csSAKcOjz6QSAhOcJijJmY8E8Abnc0RAajqdLSzoTL6C05M9oimd4QnZDsqBCf3r5dCwMhGQ.XzJ6weZBX2pLFCgZwok8hpm8jVk830KH9x42UqiWMYo&dib_tag=se&keywords=one+plus+nord+n30&qid=1730062147&sprefix=one+plus+nord+n30%2Caps%2C279&sr=8-1)
+
 The Dream, a lot more money
 * [Red Magic 9s Pro](https://na.redmagic.gg/products/redmagic-9s-pro?goal=0_b27fb2cae5-61440e89da-350859957&variant=44588945146034)
 
