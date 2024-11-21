@@ -12,8 +12,9 @@ The Dream, a lot more money
 ## Clothes
 * [Mana is stored in the balls](https://wizardofbarge.com/collections/frontpage/products/mana-drought-tee?variant=45400735351009)
 
-## Other Computer Things
+## Tech Stuff
 * [Phone Keyboard](https://www.amazon.com/Bluetooth-Keyboard-Geyes-Foldable-Smartphones/dp/B07BBLHJ2R/ref=sr_1_6?sr=8-6) <- High Priority + Cheap
+* [MP3 Player](https://www.amazon.com/gp/product/B0C5J3WHML/ref=ewc_pr_img_2?smid=A16CKZXH4NYTUN)
 * [Graphics Card](https://www.amazon.com/ASRock-XT-DisplayPort-Architecture-RX5700/dp/B0DC4JTVRB/ref=sr_1_2?sr=8-2)
 
 ## Hard Drives
