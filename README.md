@@ -11,6 +11,7 @@ The Dream, a lot more money
 
 ## Clothes
 * [Mana is stored in the balls](https://wizardofbarge.com/collections/frontpage/products/mana-drought-tee?variant=45400735351009)
+* [BDSwordsMagic](https://wizardofbarge.com/collections/frontpage/products/bdsm-longsleeve?variant=43638200434913)
 
 ## Tech Stuff
 * [Phone Keyboard](https://www.amazon.com/Bluetooth-Keyboard-Geyes-Foldable-Smartphones/dp/B07BBLHJ2R/ref=sr_1_6?sr=8-6)
