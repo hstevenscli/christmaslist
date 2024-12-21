@@ -17,7 +17,7 @@ The Dream, a lot more money
 * [Phone Keyboard](https://www.amazon.com/Bluetooth-Keyboard-Geyes-Foldable-Smartphones/dp/B07BBLHJ2R/ref=sr_1_6?sr=8-6)
 * [MP3 Player](https://www.amazon.com/gp/product/B0C5J3WHML/ref=ewc_pr_img_2?smid=A16CKZXH4NYTUN)
 * [Portable Monitor - Any brand really](https://www.amazon.com/s?k=portable+monitor)
-* [Graphics Card](https://www.amazon.com/ASRock-XT-DisplayPort-Architecture-RX5700/dp/B0DC4JTVRB/ref=sr_1_2?sr=8-2)
+* [Graphics Card](https://www.amazon.com/PowerColor-Radeon-5700-GDDR6-Graphics/dp/B07WW2SZRY/ref=mp_s_a_1_18_so_VIDEO_CARD?crid=2X6X2ZWAZQMLM&dib=eyJ2IjoiMSJ9.hioupIIBnYS8wBwtHx-vORdjJHOszeP6IqW4fMpTKsLCIcNS0laTBtIv5T9osWT1gmIswLyabC-HUS8BZbzNJ9NKDfMhM5hyUcan4_HEUWyXoxxcph-kACOiX7DkuOYvHDdyOSApzJ1PW2AdZ3p_RoToCHNmK8R77j-NYlTVXtHBh9u1UipJCjOALLP8O9sEtAwTe-lWf6kp4sjlyaQIfQJ--uINm64S6-EgfjHU712nVoyohip70poFQBlreD7erHzJwdLEjrXzEmZCOJ17bk_Cl8z_b797FMAqiVw52JnoXwyTdvg6kYuTPy2rv76AUcUiO0KM9g99ZPPi0u7aEzgXR1BLJ6jViVIDuU73wG9tNwz_z0I_6vVfKmRbvWCjhEnRM6LlTq9mTEsnQp_wePjccWzr0qhw3vc6IIB7GPo.CSFFB53go3X2l6ifSqMtNXV1ZP1pwo0dGLrTJCbGz00&dib_tag=se&keywords=radeon+5700xt&qid=1734797865&sprefix=radeon+5700xt%2Caps%2C196&sr=8-18&xpid=lvLuKSXVugEdk)
 
 ## Hard Drives
 * [4tb hard drive](https://www.amazon.com/Seagate-BarraCuda-Internal-Drive-3-5-Inch/dp/B07D9C7SQH/ref=sr_1_3?sr=8-3)
