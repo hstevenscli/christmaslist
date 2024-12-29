@@ -14,8 +14,6 @@ The Dream, a lot more money
 * [BDSwordsMagic](https://wizardofbarge.com/collections/frontpage/products/bdsm-longsleeve?variant=43638200434913)
 
 ## Tech Stuff
-* [Phone Keyboard](https://www.amazon.com/Bluetooth-Keyboard-Geyes-Foldable-Smartphones/dp/B07BBLHJ2R/ref=sr_1_6?sr=8-6)
-* [MP3 Player](https://www.amazon.com/gp/product/B0C5J3WHML/ref=ewc_pr_img_2?smid=A16CKZXH4NYTUN)
 * [Portable Monitor - Any brand really](https://www.amazon.com/s?k=portable+monitor)
 * [Graphics Card](https://www.amazon.com/PowerColor-Radeon-5700-GDDR6-Graphics/dp/B07WW2SZRY/ref=mp_s_a_1_18_so_VIDEO_CARD?crid=2X6X2ZWAZQMLM&dib=eyJ2IjoiMSJ9.hioupIIBnYS8wBwtHx-vORdjJHOszeP6IqW4fMpTKsLCIcNS0laTBtIv5T9osWT1gmIswLyabC-HUS8BZbzNJ9NKDfMhM5hyUcan4_HEUWyXoxxcph-kACOiX7DkuOYvHDdyOSApzJ1PW2AdZ3p_RoToCHNmK8R77j-NYlTVXtHBh9u1UipJCjOALLP8O9sEtAwTe-lWf6kp4sjlyaQIfQJ--uINm64S6-EgfjHU712nVoyohip70poFQBlreD7erHzJwdLEjrXzEmZCOJ17bk_Cl8z_b797FMAqiVw52JnoXwyTdvg6kYuTPy2rv76AUcUiO0KM9g99ZPPi0u7aEzgXR1BLJ6jViVIDuU73wG9tNwz_z0I_6vVfKmRbvWCjhEnRM6LlTq9mTEsnQp_wePjccWzr0qhw3vc6IIB7GPo.CSFFB53go3X2l6ifSqMtNXV1ZP1pwo0dGLrTJCbGz00&dib_tag=se&keywords=radeon+5700xt&qid=1734797865&sprefix=radeon+5700xt%2Caps%2C196&sr=8-18&xpid=lvLuKSXVugEdk)
 
@@ -31,9 +29,6 @@ The Dream, a lot more money
 #### Semi Useful/For Fun
 * [Spyderco lightweight](https://www.amazon.com/Spyderco-Tenacious-Lightweight-Folding-Stainless/dp/B083ZMLSWZ/ref=mp_s_a_1_3?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-3)
 * [Spyderco Para 3](https://www.amazon.com/Spyderco-Lightweight-Signature-Stainless-Durable/dp/B07XVR2K7P/ref=mp_s_a_1_19?crid=2J3QAVH7VSUNG&keywords=spyderco+knife&qid=1700766224&sprefix=spyder%2Caps%2C202&sr=8-19)
-
-## Lighter
-* [Vintage Lighter](https://www.amazon.com/Laicengo-Vintage-Kerosene-Windproof-Included/dp/B091DN8VN7/ref=sr_1_28?keywords=old%2Blighter&sr=8-28&th=1) 
 
 ## Fun Stuff
 
